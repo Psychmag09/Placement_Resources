@@ -1,5 +1,5 @@
 # Placement_resources
-**Course,Notes,Cheatsheets,previous year solved questions and lot more...**
+**One of the best Solution of placement problems at one place...**
 
 
 **Resources to create a best resume:**
