@@ -1,5 +1,5 @@
 # Placement_resources
-**One of the best Solution of placement problems at one place...**
+**One Stop Solution of all Placement Problems...**
 
 
 **Resources to create a best resume:**
